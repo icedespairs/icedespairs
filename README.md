@@ -1,3 +1,4 @@
+<p align=center>໒꒰ྀི ˶> ˕ <˶꒱ྀི১
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
 <p align=center> 
 𝓲sabun ♡ 𝓹rincey
@@ -15,3 +16,4 @@ im also a fullkin of itrapped and i dont mind dblz interacting w me,,
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
 
 for more info plz read my carrd.
+<br> bunbunbunbun
