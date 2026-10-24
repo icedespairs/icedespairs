@@ -1,4 +1,4 @@
-<p align=center>໒꒰ྀི ˶> ˕ <˶꒱ྀི১
+<p align=center>૮꒰˶ ⁠❛   ˕ ⁠❛˶꒱ა
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
 <p align=center> 
 𝓲sabun ♡ 𝓹rincey
