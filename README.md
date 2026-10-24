@@ -12,6 +12,18 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 <br>im also a fullkin of itrapped and i dont mind dblz interacting w me,,
 
 </details>
+<div align="center"> <details>
+<summary>dni ݁Ი𐑼</summary>
+
+wip
+
+</details>
+<div align="center"> <details>
+<summary>boundaries ݁Ი𐑼</summary>
+
+wip
+
+</details>
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
 
 for more info plz read my carrd.
