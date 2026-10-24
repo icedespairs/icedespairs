@@ -13,7 +13,7 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 
 </details>
 <div align="center"> <details>
-<summary>byf ݁Ი𐑼</summary>
+<summary>𝓫yf ݁Ი𐑼</summary> 
 
 i block freely.. 
 <br> im also extremely moody due to my shifting moods.
@@ -22,7 +22,7 @@ i block freely..
 
 </details>
 <div align="center"> <details>
-<summary>boundaries ݁Ი𐑼</summary>
+<summary>𝓫oundaries ݁Ი𐑼</summary>
 
 i dont like when someone flirts w me
 <br> idm chance fans but 50/50 on no.1 fans
