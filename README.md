@@ -16,17 +16,17 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 <summary>𝓫yf ݁Ი𐑼</summary> 
 
 i block freely.. 
-<br> im also extremely moody due to my shifting moods.
-<br> i might be cold at times or ghost u
+<br> im also extremely moody due to my shifting moodz.
+<br> i might be cold at timez or ghost u
 <br> -13 n 16+ pls iwrecare to me. thank u
 
 </details>
 <div align="center"> <details>
 <summary>𝓫oundaries ݁Ი𐑼</summary>
 
-i dont like when someone flirts w me
-<br> idm chance fans but 50/50 on no.1 fans
-<br> ask me for my socials or fandoms
+i dont like when someone flirtz me
+<br> idm chance fanz but 50/50 on no.1 fanz
+<br> ask me for my socialz or fandomz
 
 </details>
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
