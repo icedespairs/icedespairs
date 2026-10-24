@@ -2,9 +2,10 @@
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
 <p align=center> 
 𝓲sabun ♡ 𝓹rincey
-<p align=center>𝓰ender𝓷eutral 𝓽erms only plz.. 
+<br> ກonsharing 𝓬hance 𝔂ume, dni dblz
+<br>𝓰ender𝓷eutral 𝓽erms only plz.. 
 <div align="center"> <details>
-<summary>info</summary>
+<summary>𝓲nfo</summary>
 
 im agender n achillean. i prefer it/its being used on me but idm if u use my other pronounz!
 
