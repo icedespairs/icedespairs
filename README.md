@@ -14,4 +14,4 @@ im also a fullkin of itrapped and i dont mind dblz interacting w me,,
 </details>
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
 
-for more info pls read my carrd.
+for more info plz read my carrd.
