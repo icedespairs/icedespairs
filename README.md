@@ -13,15 +13,20 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 
 </details>
 <div align="center"> <details>
-<summary>dni ݁Ი𐑼</summary>
+<summary>byf ݁Ი𐑼</summary>
 
-wip
+i block freely.. 
+<br> im also extremely moody due to my shifting moods.
+<br> i might be cold at times or ghost u
+<br> -13 n 16+ pls iwrecare to me. thank u
 
 </details>
 <div align="center"> <details>
 <summary>boundaries ݁Ი𐑼</summary>
 
-wip
+i dont like when someone flirts w me
+<br> idm chance fans but 50/50 on no.1 fans
+<br> ask me for my socials or fandoms
 
 </details>
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
