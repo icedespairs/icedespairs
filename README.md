@@ -2,6 +2,7 @@
 <p align=center>︶ ⏝︶ ⏝︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶⏝ ︶⏝ ︶
 <p align=center> 
 𝓲sabun ♡ 𝓹rincey
+<br> i love my cutie isaac ♡
 <br> ກonsharing 𝓬hance 𝔂ume, dni dblz
 <br>𝓰ender𝓷eutral 𝓽erms only plz.. 
 <div align="center"> <details>
