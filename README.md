@@ -22,7 +22,8 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 i block freely.. 
 <br> im also extremely moody due to my shifting moodz.
 <br> i might be cold at timez or ghost u
-<br> i prioritize my time a lot and i might forget abt replying to yu,,, 
+<br> i prioritize my time a lot and i might forget abt replying to yu,,,
+i have typing quirkz so lmk if u cant understand!!!!
 <br> -13 n 16+ pls iwrecare to me. thank u
 
 </details>
