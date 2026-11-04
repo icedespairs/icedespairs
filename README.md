@@ -13,8 +13,7 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 <br>im taken by my 3 partnerz ♡ so pleaze,, dont flirt w me..
 <br>im also a fullkin of itrapped and i dont mind dblz interacting w me,,
 <br> im also into typology,, my typology below!!
-<br> SEE ESFP (SeFiTeNi) 8w7 sx/sp 826 VFLE /S/[L]xEn /M/xhiD[R]g sang-chol
-
+<br> typology wip. im retyping myself kinda lol wait
 </details>
 <div align="center"> <details>
 <summary>𝓫yf ݁Ი𐑼</summary> 
