@@ -30,11 +30,12 @@ i block freely..
 
 </details>
 <div align="center"> <details>
-<summary>𝓲nterests</summary>
+<summary>𝓲nterests Ი𐑼</summary>
 
 roblox (mm12, forsaken, TRBLXA, noobmayhem, idk ask me plz.), 
 <br>mc (mostly empires smp), 
 <br>sum anime jst ask me cuz i cant rlly remember,,,,, oopz..
+<br> i like mobile legends too i guess,, 
 </details>
 <div align="center"> <details>
 <summary>𝓫oundaries ݁Ი𐑼</summary>
