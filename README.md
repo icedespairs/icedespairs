@@ -6,6 +6,7 @@
 <br> i love my cutie isaac ♡
 <br> ກonsharing 𝓬hance 𝔂ume, dni dblz
 <br>𝓰ender𝓷eutral 𝓽erms only plz.. 
+<br> i recommend reading my carrd n other webs !! :p
 <div align="center"> <details>
 <summary>𝓲nfo ݁Ი𐑼</summary>
 
@@ -13,7 +14,7 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 <br>im taken by my 3 partnerz ♡ so pleaze,, dont flirt w me..
 <br>im also a fullkin of itrapped and i dont mind dblz interacting w me,,
 <br> im also into typology,, my typology below!!
-<br> wip sx/sp8(w7)25 ESFP (SeFiTeNi) wip
+<br> wip sx/sp8(w7)25 ESFP (SeFiTeNi) wip uhh yeahhh,,,,,, 
 </details>
 <div align="center"> <details>
 <summary>𝓫yf ݁Ი𐑼</summary> 
@@ -33,7 +34,7 @@ i block freely..
 
 roblox (mm12, forsaken, TRBLXA, noobmayhem, idk ask me plz.), 
 <br>mc (mostly empires smp), 
-<br>sum anime jst ask me cuz i cant rlly remember,,,,, oops..
+<br>sum anime jst ask me cuz i cant rlly remember,,,,, oopz..
 </details>
 <div align="center"> <details>
 <summary>𝓫oundaries ݁Ი𐑼</summary>
