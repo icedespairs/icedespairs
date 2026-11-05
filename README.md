@@ -27,6 +27,12 @@ i block freely..
 
 </details>
 <div align="center"> <details>
+<summary>tinterests</summary>
+
+wippy wip waiiit
+
+</details>
+<div align="center"> <details>
 <summary>𝓫oundaries ݁Ი𐑼</summary>
 
 i dont like when someone flirtz me
