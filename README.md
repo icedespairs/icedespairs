@@ -6,7 +6,7 @@
 <br> i love my cutie isaac ♡
 <br> ກonsharing 𝓬hance 𝔂ume, dni dblz
 <br>𝓰ender𝓷eutral 𝓽erms only plz.. 
-<br> i recommend reading my carrd n other webs !! :p
+<br> i recommend reading my carrd n other webz !! :p
 <div align="center"> <details>
 <summary>𝓲nfo ݁Ი𐑼</summary>
 
