@@ -13,7 +13,7 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 <br>im taken by my 3 partnerz ♡ so pleaze,, dont flirt w me..
 <br>im also a fullkin of itrapped and i dont mind dblz interacting w me,,
 <br> im also into typology,, my typology below!!
-<br> typology wip. im retyping myself kinda lol wait
+<br> wip sx/sp8(w7)25 ESFP (SeFiTeNi) wip
 </details>
 <div align="center"> <details>
 <summary>𝓫yf ݁Ი𐑼</summary> 
@@ -21,16 +21,19 @@ im agender n achillean. i prefer it/its being used on me but idm if u use my oth
 i block freely.. 
 <br> im also extremely moody due to my shifting moodz.
 <br> i might be cold at timez or ghost u
+<br> i rlly have bad memory and so plz remind me alot....
+<br> (rlly bad i cant rmeember a whole day in my life)
 <br> i prioritize my time a lot and i might forget abt replying to yu,,,
 <br> i have typing quirkz so lmk if u cant understand!!!!
 <br> -13 n 16+ pls iwrecare to me. thank u
 
 </details>
 <div align="center"> <details>
-<summary>tinterests</summary>
+<summary>𝓲nterests</summary>
 
-wippy wip waiiit
-
+roblox (mm12, forsaken, TRBLXA, noobmayhem, idk ask me plz.), 
+<br>mc (mostly empires smp), 
+<br>sum anime jst ask me cuz i cant rlly remember,,,,, oops..
 </details>
 <div align="center"> <details>
 <summary>𝓫oundaries ݁Ი𐑼</summary>
