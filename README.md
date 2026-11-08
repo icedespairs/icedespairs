@@ -33,7 +33,7 @@ i block freely..
 <summary>𝓲nterests Ი𐑼</summary>
 
 roblox (mm12, forsaken, TRBLXA, noobmayhem, idk ask me plz.), 
-<br>mc (mostly empires smp), 
+<br>mc (mostly empires smp n uu smp), 
 <br>sum anime jst ask me cuz i cant rlly remember,,,,, oopz..
 <br> i like mobile legends too i guess,, 
 </details>
