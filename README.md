@@ -4,10 +4,10 @@
 
 
 <p align="left"> ${{\color{#c6b6cc}\normalsize{\textsf{⠀𓎢𓎡⠀⠀𝓃ame⠀⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ </p> 
-<p align="right"> ${{\color{#c6b6cc}\normalsize{\textsf{⠀𓎢𓎡⠀⠀𝓃ame⠀⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ </p>
+<p align="right"> ${{\color{#c6b6cc}\normalsize{\textsf{⠀𓎢𓎡⠀⠀𝓆uote⠀⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ </p>
 
 <p align="center"> 
-${{\color{#c6b6cc}\huge{\textsf{⠀𓎢𓎡⠀⠀𝓆uote⠀/⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ <br>
+${{\color{#c6b6cc}\huge{\textsf{⠀𓎢𓎡⠀⠀𝓈tatus⠀/⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ <br>
 ${{\color{#c6b6cc}\huge{\textsf{⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹}}}}$ <br>
   
 <br><br>
