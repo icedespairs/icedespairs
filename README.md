@@ -11,3 +11,15 @@ ${{\color{#c6b6cc}\huge{\textsf{⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚�
   
 <sub><sub> w isaac: i got the fonts from this web isa xD https://capitalizemytitle.com/italic-text-generator/ feel free to change the font or smth </sub><sub>
 
+<br><br>
+
+<div align="center"> <details>
+<summary>${{\color{#c6b6cc}\huge{\textsf{𝒾nfo}}}}$</summary>
+${{\color{#c6b6cc}\normalsize{\textsf{𝓉xt 𝓉xt 𝓉xt 𝓉xt 𝓉xt 𝓉xt}}}}$ <br>
+${{\color{#c6b6cc}\normalsize{\textsf{𝓉xt 𝓉xt 𝓉xt}}}}$ <br>
+
+${{\color{#c6b6cc}\normalsize{\textsf{𝓉xt 𝓉xt 𝓉xt}}}}$ <br>
+${{\color{#c6b6cc}\normalsize{\textsf{𝓉xt 𝓉xt 𝓉xt}}}}$ <br>
+
+${{\color{#c6b6cc}\normalsize{\textsf{𝓉xt 𝓉xt 𝓉xt}}}}$ <br>
+</details>
