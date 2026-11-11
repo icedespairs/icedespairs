@@ -46,7 +46,11 @@ ${{\color{#c6b6cc}\tiny{\textsf{𝓉xt 𝓉xt 𝓉xt}}}}$ <br>
 ${{\color{#c6b6cc}\tiny{\textsf{𝓉xt 𝓉xt 𝓉xt}}}}$ <br>
 </details>
 
-<br><br>
+<br>
+
+<a href="https://hits.sh/github.com/pr1nceisaiah/hits/"><img alt="Hits" src="https://hits.sh/github.com/pr1nceisaiah/hits.svg?label=ellertrapped%20supermacy%20!!&color=b8a5bf&labelColor=9a9ec4"/></a>
+
+<br>
 
 <div align="left"> <details>
 <summary>${{\color{#c6b6cc}\huge{\textsf{« 𝒹ni}}}}$</summary>
