@@ -5,6 +5,9 @@
 
 ${{\color{#c6b6cc}\normalsize{\textsf{⠀𓎢𓎡⠀⠀𝓃ame⠀⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ <br>
 
-<p align="center"> ${{\color{#c6b6cc}\huge{\textsf{⠀𓎢𓎡⠀⠀𝓈tatus⠀⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ <br>
-
+<p align="center"> 
+${{\color{#c6b6cc}\huge{\textsf{⠀𓎢𓎡⠀⠀𝓈tatus⠀⠀𝓉xt 𝓉xt 𝓉xt 𓎢𓎡⠀}}}}$ <br>
+${{\color{#c6b6cc}\huge{\textsf{⊹₊˚‧︵‿₊⊱·✶·⊰₊‿︵‧˚₊⊹}}}}$ <br>
+  
 <sub><sub> w isaac: i got the fonts from this web isa xD https://capitalizemytitle.com/italic-text-generator/ feel free to change the font or smth </sub><sub>
+
