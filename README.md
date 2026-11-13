@@ -1,4 +1,4 @@
-made by my bf. follow @vilicaleb NOWWWW!!!!!!!!!!
+made by my bf. follow [@vilicaleb](https://github.com/vilicaleb) NOWWWW!!!!!!!!!!
 
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Pixelify+Sans&size=18&duration=2500&pause=1000&color=C6B6CC&vCenter=true&width=435&lines=Do+you+believe+in+love+at+first+sight%3F;Do+you+believe+in+fate%3F%E2%80%A6;I+believe+that+good+things%2C;Only+come+to+those+who+wait." alt="Typing SVG" /></a>
 
